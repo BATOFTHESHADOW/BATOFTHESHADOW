@@ -2,7 +2,7 @@
 -  🦇 I’m interested in CODING
 -  🦇 I’m currently learning CODING
 -  🦇 I’m looking to collaborate on [NOT_NOW]
--  🦇 How to reach me (You Can't)
+-  🦇 How to reach me (You Won't)
 -  🦇 Pronouns: (BATS/KNIGHT)
 -  🦇 Fun fact: [NONE]
 
